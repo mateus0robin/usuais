@@ -1,2 +1,0 @@
-# usuais
-sim
